@@ -290,3 +290,5 @@ Follow me on social media for updates and more learning resources:
 **Happy Learning! 🎉**
 
 Remember: Making mistakes is part of learning. Don't be afraid to experiment and try new things!
+
+ඔයාට පුලුවන් කරන්න​ you can do it
